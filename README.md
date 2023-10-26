@@ -7,7 +7,7 @@
 ## Privacy Policy
 **Privacy Policy**
 
-honesty built the 앎송 app as a Free app. This SERVICE is provided by honesty at no cost and is intended for use as is.
+Honesty built the 앎송 app as a Free app. This SERVICE is provided by Honesty at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding our policies with the collection, use, and disclosure of Personal Information if anyone decided to use our Service.
 
